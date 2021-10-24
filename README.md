@@ -1,2 +1,2 @@
 # free-win-10-sim
-e
+Easy just go to http://windows.gmrform.tk/ but u need to click start menu to start using the apps 
